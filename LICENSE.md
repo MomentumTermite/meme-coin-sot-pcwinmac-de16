@@ -1,4 +1,4 @@
-# 
+# Top meme coin sniper bot modèles pour Mac OS | Automatique meme coin sniper bot modèles pour PC Windows. Avec ordres limite et extraction MEV — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
